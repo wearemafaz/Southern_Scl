@@ -1,2 +1,2 @@
 # Southern_Scl
-Schools in Southern province in Sri lanka
+Schools in Southern province, Sri lanka
